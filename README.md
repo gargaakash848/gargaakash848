@@ -14,6 +14,7 @@
 4. Linkedin - https://www.linkedin.com/in/gargaakash848/
 5. HackerRank - https://www.hackerrank.com/gargaakash848
 6. Kaggle - https://www.kaggle.com/gargaakash848
+7. Medium - https://medium.com/@gargaakash848
 
 
 
