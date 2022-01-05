@@ -9,7 +9,7 @@
 # All the links are given down below...
 
 1. Facebook - 
-2. Instagram - 
+2. Instagram - https://www.instagram.com/gargaakash848/
 3. Twitter - https://twitter.com/gargaakash848
 4. Linkedin - https://www.linkedin.com/in/gargaakash848/
 5. HackerRank - https://www.hackerrank.com/gargaakash848
